@@ -1,0 +1,1 @@
+online event management system like if any fuctions the people albe to conteact the organizers like desiner,catering,decores like for the function to cordinate and give the best works ,connect atll the caters ,decores in one place like contact detaoils previous qworks ect for rewiw and give a contracft for these give a code
